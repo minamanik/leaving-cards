@@ -16,3 +16,7 @@ All the very best for whatever comes next, Benjy. I wish we'd got to work togeth
 `#028A0F` *Thank you for being a great colleague! I really enjoyed working with you and have learned a lot. Good luck for all your future adventures!* :four_leaf_clover: :four_leaf_clover: :four_leaf_clover:
 
 ![Wwtbams08E03 GIF by Stellify Media](https://media4.giphy.com/media/hsRzOoZ9iEKTjSTTyF/giphy.gif)
+
+### Mina 
+Best wishes for your future plans Benjy! I have really enjoyed working alongside you and learned a lot from you. It's clear you are passionate and care about the human side of the work you do and that is very refreshing. All the best and stay in touch! Mina 
+
